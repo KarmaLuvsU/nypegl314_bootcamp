@@ -16,7 +16,7 @@
 
 ![Alt text](ab58c311-fe6f-4836-a3f4-e097ae24bdb4-1661854223680.webp) 
 
-To see more, please visit [here](twitch.tv/sinatraa)
+To see more, please visit [here](https://www.twitch.tv/sinatraa)
 
 # To those who don't understand, I will write below: `below`
 
